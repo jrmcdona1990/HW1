@@ -1,3 +1,0 @@
-John McDonald
-
-Chicago Cubs
